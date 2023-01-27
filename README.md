@@ -1,3 +1,3 @@
-# knowledge-is-power
+# Save a lot of money and Travel the world...
 
 Students will help me become the wisest sage in Warwick.
